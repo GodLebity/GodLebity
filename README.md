@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @GodLebity
+- 👀 I’m interested in progamming roblox exploits
+- 🌱 I’m currently learning at TVO school
+- 📫 Reach me via: progamingplayer1234@gmail.com
